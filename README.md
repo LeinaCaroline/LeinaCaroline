@@ -1,3 +1,3 @@
-# Oie 😊 eu sou a  Leina Caroline 
+# Oie eu sou Leina Caroline  🌷
 
 
