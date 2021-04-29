@@ -1,6 +1,8 @@
 # Oie eu sou Leina Caroline  🌷
 
 
-#Sobre mim:
+# Files
+
+Sou estudante de SI ,  aqui estao meu aprendizado 
 
 
